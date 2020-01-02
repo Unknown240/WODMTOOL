@@ -9,3 +9,6 @@ DISABLE MICLOUD WITH PRO.SNAPDRAGON
 
 - wajib aktifkan USB DEBUG
 - Micloud tidak bisa dipakai lagi
+- File Error? Contact me
+
+wa.me/62895326509469
